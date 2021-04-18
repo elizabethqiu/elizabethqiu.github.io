@@ -1,2 +1,2 @@
-# elizabethqiu.github.io
+# elizabethqiu dot world
 mai website ^_^
